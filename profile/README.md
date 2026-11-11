@@ -51,6 +51,6 @@
 
 ### Kontakt
 
-📞 [+48 666 155 165](tel:+48666155165) · 🌐 [hbf.pl/kontakt](https://hbf.pl/kontakt.php) · 🛟 [Zdalna pomoc](https://hbf.pl/pomoc.php)
+📞 +48 666 155 165 · 🌐 [hbf.pl/kontakt](https://hbf.pl/kontakt.php) · 🛟 [Zdalna pomoc](https://hbf.pl/pomoc.php)
 
 <sub>HBF Management · ul. Melchiora Wańkowicza 3, 40-384 Katowice · Autoryzowany Partner Certum · sieć sprzedaży InsERT · Rzetelna Firma</sub>
